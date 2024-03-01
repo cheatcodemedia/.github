@@ -1,4 +1,4 @@
-![CheatCode Media Group](https://i.imgur.com/J3aEPc1.png)
+![CheatCode Media Group](https://i.imgur.com/AFNdeN7.jpeg)
 
 ## Welcome to CheatCode
 
